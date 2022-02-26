@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @daw0rld
 - 👀 I’m interested in Tally Hall
-- 🌱 I’m currently learning hou to fuk ur moms ass (Pootis) //Fuck my life (And blue haired girls)
+- 🌱 I’m currently learning hou to fuk ur moms ass //Fuck my life (And blue haired girls)
 - 💞️ I’m looking to collaborate on Capitalism
 - 📫 How to reach me : daworld@spainmail.com
 
